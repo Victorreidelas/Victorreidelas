@@ -10,4 +10,5 @@ Sou: Victor luiz da silva tenho 16 anos
 - serie favorita: lucifer
 - gosto de suco de caju com limao
 - comida favorita: pipoca com molho de pimenta
-![](https://media.tenor.com/cM23ABcPfZcAAAAC/brooklyn-nine-nine-terry-jeffords.gif)
+
+![](https://media.tenor.com/cM23ABcPfZcAAAAd/brooklyn-nine-nine-terry-jeffords.gif)
