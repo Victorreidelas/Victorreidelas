@@ -1,4 +1,3 @@
-### Hi there 👋
 
 Sou: Victor luiz da silva tenho 16 anos 
 
